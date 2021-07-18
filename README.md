@@ -1,1 +1,2 @@
 - 👋 Hi, I’m @huntershana, and my full name is Flame-Haired Burning-Eyed Hunter·Shana!
+- 😡 I would like to track down the evil and sweep away the darkness.
